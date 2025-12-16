@@ -1,0 +1,1 @@
+# konica-support-platform
